@@ -2,3 +2,4 @@ Nothing particularly interesting here, just some notes I'm taking to attempt to 
 
 Notes come from:
 * https://youtu.be/ZXPGFmd77AI
+* https://www.youtube.com/watch?v=KHaFzDM-2y8
